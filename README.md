@@ -56,8 +56,8 @@
 ## 📫 Let's Connect
 
 - 🌐 Website: [creativeclicks.com.my](https://creativeclicks.com.my) *(coming soon)*  
-- 🧠 Blog: [clicktalks.my](https://clicktalks.my) *(coming soon)*  
-- 📬 Email: [your-email@example.com]  
+- 🧠 Blog: [clicktalks.my](https://blog.creativeclicks.art) *(coming soon)*  
+- 📬 Email: office@creativeclicks.art 
 - 📷 Instagram / Threads: Coming soon  
 - 🧑‍💼 LinkedIn: DM me for projects or collabs!
 
